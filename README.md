@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://hl375.pages.dev/">黑料社</a>
 
-点击访问：<a href="https://hl374.pages.dev/">黑料爆料网</a>
+点击访问：<a href="https://cg65-05.pages.dev/">暗网禁区最新</a>
 
 主要内容：
 
